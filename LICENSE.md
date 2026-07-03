@@ -1,4 +1,4 @@
-#  
+#  updated minecraft Script offers the most advanced minecraft Script, with instant win and auto-farm. Perfect for dominating any match.
 
 
 
